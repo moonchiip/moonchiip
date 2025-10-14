@@ -14,7 +14,7 @@
 <p align="center"> hi this is a wip...graphics later...im lazy,Ok? </p> 
 <br>
 
-<p align="center"> 𓆩　purrling 𐏐 fawn 𐏐 juno　ෆ　they/xem/any　ෆ　18yo　𓆪 </p> 
+<p align="center"> 𓆩　lunar 𐏐 fawn 𐏐 juno　ෆ　they/xem/any　ෆ　18yo　𓆪 </p> 
 <p align="center"> syshost　.　infp-t　.　antiharrassment　.　neuship </p> 
 <p align="center"> c+h welcomed　ᕱ.ᕱ　always w2i + iwc </p> 
 
