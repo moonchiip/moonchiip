@@ -7,7 +7,7 @@
 </a>
 <img src="https://komarev.com/ghpvc/?username=solartides&color=E45A92&style=flat&label=_ _fireworks_ _(๑ᵔ⤙ᵔ๑)_ _" /> <p align="center">
 <p align="center">
-  <img src="https://media.tenor.com/eZF5jNqx1-QAAAAi/pixel-pixel-art.gif" width="200" height="200%"/>
+  <img src="https://media.tenor.com/E2v_Vrmy9qAAAAAi/cat-apple.gif" width="200" height="200%"/>
 </p>
 <br>
 
