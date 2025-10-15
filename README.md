@@ -5,16 +5,13 @@
 
 <p align="center">
 </a>
-<img src="https://komarev.com/ghpvc/?username=solartides&color=E45A92&style=flat&label=_ _fireworks_ _(๑ᵔ⤙ᵔ๑)_ _" /> <p align="center">
+<img src="https://komarev.com/ghpvc/?username=solartides&color=8a0e33&style=flat&label=_ _wip_ _(๑ᵔ⤙ᵔ๑)_ _" /> <p align="center">
 <p align="center">
-  <img src="https://media.tenor.com/E2v_Vrmy9qAAAAAi/cat-apple.gif" width="200" height="200%"/>
+  <img src="https://i.pinimg.com/originals/86/aa/53/86aa534be838b7124d6c8691c1b7b5ea.gif" width="200" height="200%"/>
 </p>
 <br>
 
-<p align="center"> hi this is a wip...graphics later...im lazy,Ok? </p> 
-<br>
-
-<p align="center"> 𓆩　lunar 𐏐 fawn 𐏐 juno　ෆ　they/xem/any　ෆ　18yo　𓆪 </p> 
+<p align="center"> 𓆩　lunar or fawn 𐏐 juno　ෆ　they/xem/any　ෆ　18yo　𓆪 </p> 
 <p align="center"> syshost　.　infp-t　.　antiharrassment　.　proship </p> 
 <p align="center"> c+h welcomed　ᕱ.ᕱ　always w2i + iwc </p> 
 
