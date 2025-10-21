@@ -26,7 +26,7 @@
 
 <details align="center">
 <summary> byi </summary>
-  um wip
+  ummmm idk how to talk ppl i will freeze up and panic after liek two messages ;-; i like making furrends tho...more later.
 </details>
  <br>
 
@@ -37,8 +37,8 @@
  <br>
 
 <details align="center">
-<summary> int </summary>
-  erm wip
+<summary> interests </summary>
+  the boys,　gen v,　hetalia,　countryhumans,　jem and the holograhams,　hannibal,　star trek,　star wars,　black butler, american psycho,　supernatural,　sally face,　fran bow,　dragon age,　skyrim,　fnaf,　postal,　epic the musical,　house of the dragon,　house md,　mcu/dcu,　mandela catalouge,　mouthwashing,　a lot of args,　arcane,　++　other stuff.　no particular order btw.
 </details>
  <br>
 
