@@ -1,3 +1,6 @@
+ignore this, i'm remaking it.
+
+
 <div align="center">
 
 ## ${\textsf{\color{#5D2F77}⸜(｡ ˃ ᵕ ˂ )⸝♡   even if it all burns out, i did it my way!}}$
