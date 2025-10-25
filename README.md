@@ -36,4 +36,4 @@ blinkies ..
   <img src="https://epic.crd.co/assets/images/gallery18/22335b4e.gif?v=44f86f0d" width="800" height="800%"/>
 </p>
 
-i'll make this more interesting in the near future.
+i'll make this more interesting in the near future. i reallyyy like horror, magical girl animes, and persona...haha..star trek too
