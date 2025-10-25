@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://epic.crd.co/assets/images/gallery18/8d2c1f22.gif?v=44f86f0d" width="800" height="800%"/>
+  <img src="https://epic.crd.co/assets/images/gallery18/22335b4e.gif?v=44f86f0d" width="800" height="800%"/>
 </p>
  <br>
 
@@ -10,8 +10,8 @@
 
    <details align="center">
 <summary> byi </summary>
-     as already stated, i'm proship, antiharrassment,<br> and anticensorship if that bothers you then don't interact. <br>
-     basic dni, i hide & block freely, dncover or copy my skins thx yeww.<br> i am very much able to seperate fiction from reality &&.<br> art from the artist, just because i'm listening to certain artists<br> or playing certain games does not mean i support them or their actions.<br> zero day fans &&. tcc dniuf or iwvvec.
+     as already stated, i'm pro⎯⎯ship, anti⎯⎯harrassment,<br> and anti⎯⎯censorship if that bothers you then don't interact. <br>
+     basic dni, i hide & block freely, dncover or copy my skins thx yeww.<br> i am very much able to seperate fiction from reality &&.<br> art from the artist, just because i'm listening to certain artists<br> or playing certain games does not mean i support them or their actions.<br> zero day fans &&. tcc dniuf or iwvvec. i do like dark media <br> btw, pro⎯⎯darkfiction always!
 </details>
  <br>
   
@@ -33,7 +33,7 @@ blinkies ..
  <br>
 
 <p align="center">
-  <img src="https://epic.crd.co/assets/images/gallery18/8d2c1f22.gif?v=44f86f0d" width="800" height="800%"/>
+  <img src="https://epic.crd.co/assets/images/gallery18/22335b4e.gif?v=44f86f0d" width="800" height="800%"/>
 </p>
 
 i'll make this more interesting in the near future.
