@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://biscuit.crd.co/assets/images/gallery85/52f5a3f9.png?v=cc1c6dfa" width="800" height="800%"/>
+  <img src="https://epic.crd.co/assets/images/gallery18/8d2c1f22.gif?v=44f86f0d" width="800" height="800%"/>
 </p>
  <br>
 
@@ -33,5 +33,7 @@ blinkies ..
  <br>
 
 <p align="center">
-  <img src="https://biscuit.crd.co/assets/images/gallery85/52f5a3f9.png?v=cc1c6dfa" width="800" height="800%"/>
+  <img src="https://epic.crd.co/assets/images/gallery18/8d2c1f22.gif?v=44f86f0d" width="800" height="800%"/>
 </p>
+
+i'll make this more interesting in the near future.
