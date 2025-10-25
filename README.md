@@ -1,12 +1,19 @@
 <p align="center">
-  <img src="https://i.postimg.cc/T33wS20B/pinktop.png" width="800" height="800%"/>
+  <img src="https://biscuit.crd.co/assets/images/gallery85/52f5a3f9.png?v=cc1c6dfa" width="800" height="800%"/>
 </p>
  <br>
 
 <p align="center">
 </a>
-<img src="https://komarev.com/ghpvc/?username=moonchiip&color=ffc2df&style=flat&label=_ _(๑ᵔ⤙ᵔ๑)_ _" /> <p align="center">
+<img src="https://komarev.com/ghpvc/?username=moonchiip&color=63888a&style=flat&label=_ _(๑ᵔ⤙ᵔ๑)_ _" /> <p align="center">
    <br>
+
+   <details align="center">
+<summary> byi </summary>
+     as already stated, i'm proship, antiharrassment,<br> and anticensorship if that bothers you then don't interact. <br>
+     basic dni, i hide & block freely, dncover or copy my skins thx yeww.<br> i am very much able to seperate fiction from reality &&.<br> art from the artist, just because i'm listening to certain artists<br> or playing certain games does not mean i support them or their actions.<br> zero day fans &&. tcc dniuf or iwvvec.
+</details>
+ <br>
   
 <details align="center">
 <summary> blinkies　　&&.　　stamps. </summary>
@@ -26,5 +33,5 @@ blinkies ..
  <br>
 
 <p align="center">
-  <img src="https://i.postimg.cc/yYPxv3mF/pinkbom.png" width="800" height="800%"/>
+  <img src="https://biscuit.crd.co/assets/images/gallery85/52f5a3f9.png?v=cc1c6dfa" width="800" height="800%"/>
 </p>
