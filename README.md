@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://epic.crd.co/assets/images/gallery18/22335b4e.gif?v=44f86f0d" width="800" height="800%"/>
+  <img src="https://dividers.crd.co/assets/images/gallery04/fbfbf767.gif?v=05d33f91" width="800" height="800%"/>
 </p>
  <br>
 
@@ -33,7 +33,7 @@ blinkies ..
  <br>
 
 <p align="center">
-  <img src="https://epic.crd.co/assets/images/gallery18/22335b4e.gif?v=44f86f0d" width="800" height="800%"/>
+  <img src="https://dividers.crd.co/assets/images/gallery04/fbfbf767.gif?v=05d33f91" width="800" height="800%"/>
 </p>
 
-i'll make this more interesting in the near future. i reallyyy like horror, magical girl animes, and persona...haha..star trek too
+i'll make this more interesting in the near future.
