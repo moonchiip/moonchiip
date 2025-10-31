@@ -1,12 +1,17 @@
 <p align="center">
-  <img src="https://dividers.crd.co/assets/images/gallery04/fbfbf767.gif?v=05d33f91" width="800" height="800%"/>
+  <img src="https://64.media.tumblr.com/43707c7c5c99a4047cbef4631b33c55b/04622f946f894dca-7b/s2048x3072/931327455fc2901e223a5e5994e40a498c8e42b8.pnj" width="800" height="800%"/>
 </p>
  <br>
 
 <p align="center">
 </a>
-<img src="https://komarev.com/ghpvc/?username=moonchiip&color=63888a&style=flat&label=_ _(๑ᵔ⤙ᵔ๑)_ _" /> <p align="center">
+<img src="https://komarev.com/ghpvc/?username=moonchiip&color=961728&style=flat&label=_ _(๑ᵔ⤙ᵔ๑)_ _" /> <p align="center">
    <br>
+
+<p align="center">
+</a>
+<img src="https://i.ibb.co/YTT6zYpn/scottvid-minis-4-git.png"/>
+
 
    <details align="center">
 <summary> byi </summary>
@@ -33,7 +38,16 @@ blinkies ..
  <br>
 
 <p align="center">
-  <img src="https://dividers.crd.co/assets/images/gallery04/fbfbf767.gif?v=05d33f91" width="800" height="800%"/>
+  <img src="https://64.media.tumblr.com/7030ea2d7d47a344674aa68f0a2f8ff9/04622f946f894dca-47/s2048x3072/8ead59363fdcf27500b8be7fe46cadb5ddb281ac.pnj" width="800" height="800%"/>
 </p>
 
+<p align="center">
 i'll make this more interesting in the near future.
+</p>
+<br>
+
+  <details align="center">
+<summary> creds </summary>
+art by reverjrr on tumblr.
+dividers by lariesographic on tumblr.
+  </details>
